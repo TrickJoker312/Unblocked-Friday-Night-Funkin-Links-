@@ -44,5 +44,9 @@ MrMeowzz FNF [Original & B-Sides!]
 
 https://mrmeowzz.github.io/Funkin-MrMeowzz/web/
 
+FNF: 
+
+https://tw31120071857.github.io/BCHS-Unblocked-Games-V2/Friday%20Night%20Funkin.html
+
 Enjoy!
 
